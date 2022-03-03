@@ -13,6 +13,3 @@ yea trust its even
 [Website](https://gmr.dev) | [LinkedIn](https://www.linkedin.com/in/genevrarose/) | [Contact Me](https://gmr.dev#contact)
 
 🌹
-
-**Something I did recently:**
-[Starcheat.net Starbound Save Editor](https://starcheat.net)
