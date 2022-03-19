@@ -1,5 +1,3 @@
-Hi, I'm Gen! If you want to work with me the contact link below is probably the fastest way to get in touch.
-
 ⠀⠀　° 　  • ⠀° 　 *　　.　⠀⠀ ● ¸ 　.　　.⠀. ⠀°⠀ . 　.　.　　.　 °⠀⠀⠀. ° . .　　　　.　 ° . .　 　. * ¸ ⠀.
 *　.　　 °　　　. 　 ° 　. ⠀● .　.　　.　° ⠀⠀☆ ⠀°⠀ . ⠀°⠀ . 　⠀.⠀⠀⠀ . ⠀⠀● .　.　*　. ° . .　　.  ° 　. 
 ⠀⠀　° 　  • ⠀° 　 *　　.　⠀⠀ ● ¸ 　.　　.⠀. ⠀°⠀ . 　.　.　　.　 °⠀⠀⠀★ ° . .　　　　.　 ° . .　 　. * ¸ ⠀.
