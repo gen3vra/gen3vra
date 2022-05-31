@@ -8,6 +8,4 @@
 <!--
 yea trust its even
 -->
-[Website](https://gmr.dev) | [LinkedIn](https://www.linkedin.com/in/genevrarose/) | [Contact Me](https://gmr.dev#contact)
-
-🌹
+[Website](https://rose.dev) 🌹 | [LinkedIn](https://www.linkedin.com/in/genevrarose/) | [Contact Me](https://rose.dev#contact)
