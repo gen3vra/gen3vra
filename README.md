@@ -6,6 +6,6 @@
 *　.　　 °　　　. 　 ° 　. ⠀● .　　　　° ⠀⠀☆ 　⠀.⠀⠀⠀¸. ⠀⠀● .　　.　★　　 ¸⠀. ¸  ⠀⠀⠀★ ° . .　　★　　.　 ☾
 ⠀⠀　° 　★ . • ⠀° 　 *　　.　⠀⠀ ● ¸ .⠀ .⠀°⠀ . .　 °.　.　 °⠀⠀⠀★ ° . .　.　.　 °
 <!--
-yea trust its even
+yea trust it's even
 -->
-[Website](https://rose.dev) 🌹 | [LinkedIn](https://www.linkedin.com/in/genevrarose/) | [Contact Me](https://rose.dev#contact)
+[Website](https://rose.dev) 🌹 | [Work With Me](https://rose.dev/consultation/)
