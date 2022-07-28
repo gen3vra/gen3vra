@@ -8,4 +8,4 @@
 <!--
 yea trust it's even
 -->
-[Website](https://rose.dev) 🌹 | [Work With Me](https://rose.dev/consultation/)
+[Website](https://rose.dev) 🌹 | [Contact](https://rose.dev#contact) | [More Work](https://rose.dev/upwork)
